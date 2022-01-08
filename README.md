@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AadityaSinghBhadoria
+- 👀 I’m interested in App & Web Development
+- 🌱 I’m currently learning JAVA & JS for App development(Kind a new to this field)
+- 💞️ I’m ready to collab or help anyone in the field mention above
+- 📫 Can reach my via email - aadityabhadoriasingh1091@gmail.com
+- 👨🏻‍🎓 Currently I am an student Vellore Institute of Technology
